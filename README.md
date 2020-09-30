@@ -1,1 +1,1 @@
-<img src = "https://gfycat.com/lividshabbybordercollie">
+<img src = "https://i.imgur.com/WRoz8Oy.gif">
